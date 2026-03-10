@@ -16,4 +16,4 @@ Estudante de **Ciência da Computação** apaixonado por tecnologia, segurança 
 ---
 
 ### 📫 Como me encontrar:
-[LinkedIn](SEU_LINK_DO_LINKEDIN_AQUI)
+[LinkedIn](www.linkedin.com/in/lucas-leal-075059349)
